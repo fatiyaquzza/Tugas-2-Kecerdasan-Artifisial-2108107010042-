@@ -1,1 +1,1 @@
-# Tugas-2-Kecerdasan-Artifisial-2108107010042-
+# Tugas-2-Kecerdasan-Artifisial-2108107010042
